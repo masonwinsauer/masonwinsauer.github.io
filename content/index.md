@@ -1,5 +1,5 @@
 ---
-title: The Window
+title: The Museum
 ---
 
 Welcome to the museum. Included in your pass today are three semi-permanent exhibits.
