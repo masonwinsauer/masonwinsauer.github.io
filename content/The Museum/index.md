@@ -1,7 +1,8 @@
 ---
 title: The Museum
-description: A collection of unedited daily entries by Mason Winsauer.
 ---
+
+[A collection of unedited entries by Mason Winsauer.]
 
 Welcome to the museum. Included in your pass today are three semi-permanent exhibits.
 
