@@ -1,11 +1,11 @@
 ---
-title: A collection of unedited daily entries by Mason Winsauer.
+title: A collection of unedited entries by Mason Winsauer.
 ---
 
-Welcome to the museum. Included in your pass today are three semi-permanent exhibits.
+Oh hi. So here's the thing. They say that you must write a million bad words before you can write a single good one.
 
-1. The galleria of false memories.
-2. The garden of fleeting serenity.
-3. A faithful reconstruction of what a gift shop for a museum such as this might theoretically have. No items are for sale.
+Here lie some of the first million.
 
-The Museum's architect, curator, and exhibit creator, Aldus Masterson, welcomes you. He would do so personally if he were able. However, he is currently occupied with many other critical duties. 
+Usually these are written early in the day before I begin work on my forthcoming novels. 
+
+Email mason.winsauer@gmail.com with questions, comments, and ideas for collaboration.
