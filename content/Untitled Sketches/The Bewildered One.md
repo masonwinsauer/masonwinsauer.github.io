@@ -9,7 +9,7 @@ tags:
 
 The bewildered one walks slowly. She trundles through the bright supermarket, overwhelmed by unnaturally saturated packaging, the squeals of children gleefully pulling salty and sweet snacks, being bombarded by the scent of wet meats slowly souring.
 
-Naturally tight curls weighed and straightened by the oils of neglect anoint her shoulders as she wandered the orderly aisles. It would have been methodically if there was any reason to her pathway, but there was not. She had had a plan when she entered the store. She was sure of that. The numbered rows counted down - Discount easter candy? Probably not. Frozen dinners? Maybe. Coffee? While we're here. Cereal? Definitely.
+Naturally tight curls weighed and straightened by the oils of neglect anoint her shoulders as she wandered the orderly aisles. It would have been methodical if there was any premeditated reason to her path, but there was not. She had had a plan when she entered the store. She was sure of that. The numbered rows counted down - Discount easter candy? Probably not. Frozen dinners? Maybe. Coffee? While we're here. Cereal? Definitely.
 
 The brightest lights seemed to emanate and bounce off of the white walls of the pharmacy. They pronounced the sterility and cleanliness of medical care, but they were blinding to her. She turned away, approaching at a negative angle, head bowed as the light bathed her pale greying skin.
 
