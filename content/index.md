@@ -9,3 +9,6 @@ Here lie some of the first million.
 Usually these are written early in the day before I begin work on my forthcoming novels. 
 
 Email mason.winsauer@gmail.com with questions, comments, and ideas for collaboration.
+
+<br>
+* These are works of fiction. Names, characters, businesses, places, events and incidents are either the products of the author’s imagination or used in a fictitious manner. Any resemblance to actual persons, living or dead, or actual events is purely coincidental.*
