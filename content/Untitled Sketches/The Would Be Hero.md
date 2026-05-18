@@ -1,7 +1,7 @@
 ---
-title: 002
+title: The Would-Be Hero
 description: 
-date: 2026/05/06
+date: 2026/05/08
 draft: false
 tags:
   - writing
