@@ -1,5 +1,5 @@
 ---
-title: 001
+title: The Bewildered One
 description: 
 date: 2026/04/13
 draft: false
