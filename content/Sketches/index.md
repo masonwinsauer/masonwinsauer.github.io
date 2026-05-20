@@ -1,5 +1,5 @@
 ---
-title: Untitled Sketches
+title: Sketches
 description:
 ---
 [A collection of unedited entries by Mason Winsauer.]
